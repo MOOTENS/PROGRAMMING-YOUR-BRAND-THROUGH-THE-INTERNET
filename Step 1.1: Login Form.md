@@ -4,6 +4,12 @@
 
 https://mootens.space/wp-login.php
 
+### [Add New Wordpress Post](https://mootens.space/wp-admin/post-new.php)
+
+https://mootens.space/wp-admin/post-new.php
+
+
+
 ---
 
 ## [CodePen Asset Manager](https://codepen.io/mootens/assets/#assets-image-files)
