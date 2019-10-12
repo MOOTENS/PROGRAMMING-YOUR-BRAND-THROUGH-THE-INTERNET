@@ -12,11 +12,13 @@ https://codepen.io/mootens/assets/#assets-image-files
 
 ---
 
-## [Square Website](https://www.weebly.com/app/home/users/126101601/sites/701017827639383282/dashboard#_=_)
+## [SHOP Square Website](https://www.weebly.com/app/home/users/126101601/sites/701017827639383282/dashboard#_=_)
 
 https://www.weebly.com/app/home/users/126101601/sites/701017827639383282/dashboard#_=_
 
+### [Item Organizer SHOP Square Website](https://squareup.com/dashboard/items/library)
 
+https://squareup.com/dashboard/items/library
 
 ---
 
