@@ -6,6 +6,12 @@ https://mootens.space/wp-login.php
 
 ---
 
+## [CodePen Asset Manager](https://codepen.io/mootens/assets/#assets-image-files)
+
+https://codepen.io/mootens/assets/#assets-image-files
+
+---
+
 ## [Square Website](https://www.weebly.com/app/home/users/126101601/sites/701017827639383282/dashboard#_=_)
 
 https://www.weebly.com/app/home/users/126101601/sites/701017827639383282/dashboard#_=_
