@@ -24,7 +24,7 @@ https://www.weebly.com/app/home/users/126101601/sites/701017827639383282/dashboa
 
 # 2. 10 Minute Subject Presentation
 
-
+![HYPERFOCUSED Sponsored Subject Review Hypermedia included!](https://s3-us-west-2.amazonaws.com/s.cdpn.io/2971879/HYPERFOCUSED%20Sponsored%20Subject%20Review%20Hypermedia%20included!.png)
 
 # 3. Item / Product Review
 
