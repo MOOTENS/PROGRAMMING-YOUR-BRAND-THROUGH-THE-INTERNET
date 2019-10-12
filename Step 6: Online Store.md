@@ -30,11 +30,12 @@ https://www.weebly.com/app/home/users/126101601/sites/701017827639383282/dashboa
 
 ![Item Promotion MOOTENS productions Hypermedia Sponsored Content Review](https://s3-us-west-2.amazonaws.com/s.cdpn.io/2971879/Item%20Promotion%20MOOTENS%20productions%20Hypermedia%20Sponsored%20Content%20Review.png)
 
-# 4. Walgreens 8x10 Print USA Shipping
+# 4. 8x10 Print USA Shipping
 
 - $4 regular price
 - $2 Shipping USA (enter any address)
 - 50% off coupon regularly
+- Walgreenns
 
 ![8x10 MOOTENS official merch Walgreens Promotion](https://s3-us-west-2.amazonaws.com/s.cdpn.io/2971879/s701017827639383282_p14_i1_w1080.jpeg)
 
