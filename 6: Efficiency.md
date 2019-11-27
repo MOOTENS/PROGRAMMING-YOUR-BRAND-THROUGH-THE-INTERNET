@@ -1,5 +1,5 @@
 
-# Step 6: Online Store.
+# 6: Efficiency
 
 ---
 
