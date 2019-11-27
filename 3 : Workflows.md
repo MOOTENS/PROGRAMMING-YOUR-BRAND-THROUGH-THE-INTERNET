@@ -2,9 +2,30 @@
 
 ---
 
+Structure
+Title
+Description
+Content(s)
+Tags
+Grow
+Automate Workflow
+Elon Musk Does Not Wash His Own Tesla
+
+
+
+Technology
+
+
+
+
+
 ---
 
 ---
+
+
+
+
 
 ## Podcast Recording 10 minutes Morning
 
