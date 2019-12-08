@@ -79,7 +79,6 @@ My parents were born in Mexico. They are both American citizens now.
 
 We grew up moving around to different houses and cities. 
 
-
 Every moment of our lives we were taught:
 
 Go to school. 
