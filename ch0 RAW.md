@@ -68,7 +68,7 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  More resources.
  
- To be able to achieve everything we want to achieve
+ To be able to achieve everything we want to achieve.
  
  The "typical" way is schooling.
  
@@ -87,7 +87,7 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  We for sure are following along in those paths and in that journey, but:
  
- That is not "THE" correct path  when we are not doing what we want to be doing.
+ That is not "THE" correct path beacause when we are not doing what we want to be doing.
  
  When we are held down by these limitations of:
  
@@ -100,7 +100,7 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  That means we are not doing what we want to be doing.
  
- So if you are doing what you want to be doing then you're going to have lots of energy, feel full and excited.
+ So if you are doing what you want to be doing then you're going to have lots of energy, feel full, and excited.
  
  The other key to this is you have to be obsessed with what you want to do.
 
@@ -110,7 +110,7 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  What's going to be the result?
  
- You're going to ffucking achieve everything you want to achieve!
+ You're going to fucking achieve everything you want to achieve!
  
  You have to keep working on it and you only stop when you die.
  
@@ -122,7 +122,153 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  This idea that you work, work, work and then all of a sudden he just stop is not the right idea.
  
- Every single moment. Earth in this reality you are working every time you breathe human table leaving. You do nothing like doing nothing is a lot of work a lot of work so let's go ahead and do what the f*** you want to do and I think our parents think our family think our connection big are ancestors are lineage because we would not be here without the help of them and it's our job to continue that and continue to provide the best possible life for everyone not only our kids but our children from the earth everyone even if they're strangers even the front of another Nation we need to do our best buy us doing our best on map so thank you for doing your back when I'm better you're better when you're better I'm better when we're going to continue on over. Academic aspect of the. Information about me and we're all of this is coming from because there is a certain approach of how to view with problems and depending on the educational experiences that you have different ways of approaching things but I'm going to show you my background just so you have some experience and help me to really help me but overall because we are here right now in this very moment everything that happened was exactly the way it's supposed to happen all right I want to give a little bit more emphasis on my mom's story so she was a group with my both of my aunts and my grandma has four of them three sisters and the mom or Grandpa was not a very good provider so he decided to live the life that he lived and he suffered greatly for it but because he suffered later on in his life to have a good life of what he wanted to live without our family without his daughters without his wife then ultimately my mom's side of the family suffered and my grandpa was going to be suffered at his end of life so because my grandpa was not a part of our family my grandma and my mom and aunts have to provide for themselves my grandma have this story she has a she needed to make money so she would make Jello for neighborhood she would make big batches of Jell-O she would sell to the local people who would then take that Jello break it up and then sell it themselves profit and then my mom and aunts what else to do theme string thing showing that type type of work as well as having a different job they also built their house from the ground up all by themselves and that entrepreneurial ship type of drive for sure is a big part of what makes me me and my mom and hurts. Reality combined with my dad hard work ethic and made me who I am so I am nothing but proud of where I come from and the Legacy. Stop thank you
+ You were and then all the sudden it just stopped 
+
+is not the right idea 
+
+ because every single moment. 
+
+In this reality 
+
+you are working 
+
+every time you breathe your meth 
+
+ work is constantly being done 
+
+even if you do nothing like 
+
+doing nothing in a lot of work 
+
+a lot of f****** work 
+
+so let's go ahead and do what the f*** you want to do and I 
+
+think our parents 
+
+think our family 
+
+think our connection t 
+
+hink ancestors 
+
+think our lineage 
+
+because we would not be here without the help of them 
+
+and it's our job to continue and 
+
+continue to provide the best possible life 
+
+for everyone not only our kids but our children from the earth 
+
+ everyone 
+
+even if they're strangers 
+
+ in the permanent another Nation 
+
+doesn't matter 
+
+ we need to do our best buy us to meet 
+
+ our bass 
+
+automatically everyone in the world improved 
+
+so thank you for doing your best 
+
+when I'm better you're better 
+
+ when you're better I'm better 
+
+when we're going to continue on TV a program 
+
+ we are going to go over the schooling academic aspect of the dark 
+
+ so just so you have the information about me and where all of this is coming from 
+
+ because there is a certain approach 
+
+ of how to view with problems 
+
+and depending on the education that you get 
+
+ of the experiences that you have 
+
+their different ways of approaching but 
+
+ I'm going to show you my background 
+
+ just so you have some experience 
+
+and how bad help me and some ways that really help me 
+
+but overall because we are here right now in this very moment 
+
+ everything that happened was exactly the way I'm supposed 
+
+ to have 
+
+all right I want to give a little bit more emphasis on my mom's story 
+
+ so she grou with my both of my aunts and my grandma 
+
+ has four of them three sisters at the mall 
+
+our Grandpa was not a very good provider 
+
+so he decided excited to live the life that he lived and he suffered greatly for it 
+
+but because he suffered later on in his life 
+
+to have a good life of what he wanted 
+
+to live without our family without his daughters without his wife 
+
+then ultimately my mom's side of the family suffered and 
+
+ my grandpa ultimately sufffered at his end of life 
+
+so because my grandpa was not a part of our family 
+
+my grandma and my mom and aunts have to provide for themselves 
+
+my grandma has this store rest in peace 
+
+she needed to make money 
+
+so she would make Jello for the neighborhood 
+
+shooting make big batches of Jell-O which she wouldn't sell to 
+
+ some local people who would then take that Jello break it up 
+
+and then sell it and self profit 
+
+and then my mom aunts and what all food do seamstress seen in. 
+
+Type cloth type of work as well as having a different jobs 
+
+they also built their house from the ground up all by themselves 
+
+that entrepreneurial ship type of drive
+
+ for sure is a big part of what makes me me 
+
+ my mom and her experience reality \ 
+
+combined with my dad's hard work ethic 
+
+have made me who I am so 
+
+I am nothing but proud of where I come from 
+
+and the Legacy. I'm Leaving On To The Future Generations so 
+
+
+thank you
+ 
  
  
  ---
