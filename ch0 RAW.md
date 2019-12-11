@@ -1,42 +1,155 @@
+What's up! 
+
+Programming Your Brand Through The Internet 
+
+Chapter 0: Why 
+
+I want to start by introducing myself.
+
+My name is George Perez.
+
+I am the President of MOOTENS productions.
+
+The business is dual run with my wife Tracie Dang-Perez (CEO).
+
+We started with MOOTENS productions in 2015.
+
+There was a need to be filled where I wanted to make a cute gift for my wife during Christmas .
+
+I didn't have any money.
+
+I wanted to make something meaningful.
+
+Instead of doing an alternative:
+
+I put all of my:
+
+Time 
+
+Energy 
+
+and Space 
+
+Into creating a cute little logo of half of our cats faces Moo and Mittens : MOOTENS.
+
+We combine the faces together and 
+
+We get MOOTENS productions.
+
+The "productions" incorporates the background of hypermedia graphic design including audio, video, images, combined with programming through web technology to improve the transfer of ideas, experiences, and communication between people.
+
+From here I'm going to go for a little bit about what the structure of how we got here.
+
+This is going to be very important along the journey and along the story of explaining why we are here.
+
+We grew up in Southern California. 
+
+I was born on August 4th 1992. 
+
+Tracie was born 1993. 
+
+We met High School 2010 and married 2018.
+
+My parents were born in Mexico and are American citizens now. 
+
+We grew up and moving around to different houses and cities.
+
+Every moment of my life we were taught 
+
+Go to school 
+
+Do your hundred percent 
+
+Work Hard 
+
+And hopefully one day on the house 
+
+have a family and be successful 
+
+Bbe able to do what we want to do .
+
+as we grow up in life we realize that (most) everything that Society teaches us 
+
+In terms of 
+
+education,
+
+What is success 
+
+What is life 
+
+What is work 
+
+What is money 
+
+All of that just starts to fall apart when we actually live our lives 
+
+Understand what life really is. 
+
+this program is a not only a book in terms of a textbook and ebook
+
+It's also a video series, audiobook.
+
+Everything combined with images, links, tools, resources, and interactable sections.
+
+This makes the Hypermedia Course.
+
+Thank you for making the investment in continuing to grow and live your best life.
+
+Then thank you for sharing our energy. 
+
+You are powerful.
+
+We learn and grow together. 
+
+When you are better I am better.
+
+So go ahead and contact me at 
+
+contact@MOOTENS.org 
+
+424-440-4837
+
+---
+
 Chapter 0: Family History
 
-The history of my dad's side:
+The history of my Father's side:
 
-My dad's name is Jose De Jesus Perez and he grew up in a small farm town.
+My Dad's name is Jose de Jesus Perez. 
 
+He grew up in a small farm town Apozol, Guadalajara, Mexico.
 
-Apozol, Guadalajara.
+We have a family story of being able to own a radio.
 
-He has this story of being able to own a radio.
+We were one of the first families to own a radio in the village.
 
-They're one of the first families to own a radio in the village.
+Batteries were a commodity. 
 
-Batteries were a commodity so they had to take out a big D batteries and put them out of the sun and that would recharge it enough to have the radio play the local stations.
-
-
-My dad left Mexico when he was 15 he was helping with the farm and at 15 he had the opportunity to go to the "new world" which the United States.
+They had to take out the big D batteries and put them out of the sun and that would recharge them enough to have the radio play the local stations.
 
 
- Just propertunities, for jobs.
+My dad left Mexico when he was 15 he was helping with the farm and at 15 he had the opportunity to go to the United States.
+
+ For opportunities, for jobs.
  
- It was a new world to him.
+ It was a new world to him, but we .
  
  My grandpa had worked on the U.S. Railroad and there's a lot of history beyond that.
  
+
  My dad came, he worked, he met my mom.
  
  
- They were childhood friends in terms of the village that theygroup in in was small.
+ They were childhood friends in terms of the village that they grew up in and it was small.
  
- In those rural towns of Mexico, every one really knows every so everyone was not surprised when they were together (I'm assuming).
+
+I am not surprised they are together.
+ 
+They worked their asses off and they showed us what hard work really is.
  
  
- He worked his ass off and he showed us what hard work really is.
- 
- 
- When I think of the impact that my dad had on me:
- 
- For sure one of the main things are:
+ When I think of the impact that my parents had on me and the main things are:
  
  Working your ass off.
  
@@ -55,8 +168,9 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  "Easier".
  
- We also want to make it "easier" for our kids.
+ We also want to make it "Easier" for our kids.
  
+
  "Easier" really means:
  
 
@@ -70,24 +184,21 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  To be able to achieve everything we want to achieve.
  
- The "typical" way is schooling.
- 
- Right?
- 
+ The "typical" way is schooling and academics.
+  
  We go to school.
  
  we get our education.
- 
- 
+  
  We get our degree, our GPA.
  
  We get a job based on that degree.
  
  We save up money to buy a house and everything.
  
- We for sure are following along in those paths and in that journey, but:
+ Some for sure are following along in those paths and in that journey, but:
  
- That is not "THE" correct path beacause when we are not doing what we want to be doing.
+ That is not "THE" correct path because when we are not doing what we want to be doing.
  
  When we are held down by these limitations of:
  
@@ -97,22 +208,23 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  Or feel like we're tired.
  
- 
  That means we are not doing what we want to be doing.
  
- So if you are doing what you want to be doing then you're going to have lots of energy, feel full, and excited.
+ So if you are doing what you want to be doing then you're going to have lots of energy, time, and have the space to actually do it.
  
  The other key to this is you have to be obsessed with what you want to do.
 
  AND DO IT.
  
- If you are obsessed and if you are commited with what you want to achieve and you do everything that you want to do at 100%
+ If you are obsessed and if you are committed with what you want to achieve and you do everything that you want to do at 100% then...
  
  What's going to be the result?
  
  You're going to fucking achieve everything you want to achieve!
  
- You have to keep working on it and you only stop when you die.
+ You have to keep working on it and you only stop when you die. 
+
+Your legacy lives on for as long as you want it to continue after you are physically gone from this dimension.
  
  Retirement is a myth!
  
@@ -120,107 +232,108 @@ My dad left Mexico when he was 15 he was helping with the farm and at 15 he had 
  
  Continue to live your best life until the moment that you die.
  
- This idea that you work, work, work and then all of a sudden he just stop is not the right idea.
+ This idea that you work, work, work and then all of a sudden we just stop 
+
+This is not the right idea.
  
- You were and then all the sudden it just stopped 
+You work and then all the sudden you just stop. 
 
-is not the right idea 
+It's not the right idea.
 
- because every single moment. 
+Every single moment. 
 
 In this reality 
 
-you are working 
+You are working.
 
-every time you breathe your meth 
+Every time you breathe.
 
- work is constantly being done 
+Work is constantly being done.
 
-even if you do nothing like 
+Even if you do nothing.
 
-doing nothing in a lot of work 
+Doing nothing i a lot of work .
 
-a lot of f****** work 
+A lot of Fucking work 
 
-so let's go ahead and do what the f*** you want to do and I 
+Let's go ahead and do what the FUCK we want to do. 
 
-think our parents 
 
-think our family 
+Thank our parents 
 
-think our connection t 
+Thank our family 
 
-hink ancestors 
+Thank our connection t 
 
-think our lineage 
+Thank ancestors 
 
-because we would not be here without the help of them 
+Think our lineage 
 
-and it's our job to continue and 
+We would not be here without the help of them.
 
-continue to provide the best possible life 
+It's our job to continue.
 
-for everyone not only our kids but our children from the earth 
+Continue to provide the best possible life.
 
- everyone 
+For everyone. 
 
-even if they're strangers 
+Not only our kids but our children from the earth.
 
- in the permanent another Nation 
+Everyone.
 
-doesn't matter 
+Even if they're strangers. 
 
- we need to do our best buy us to meet 
+We are all neighbors in this earth.
 
- our bass 
+If you are doing your best, we are on the correct team. 
 
-automatically everyone in the world improved 
+We need to do our best,
 
-so thank you for doing your best 
+Automatically everyone in the world improves.
 
-when I'm better you're better 
+Thank you for doing your best 
 
- when you're better I'm better 
+When I'm better you're better 
 
-when we're going to continue on TV a program 
+When you're better I'm better 
 
- we are going to go over the schooling academic aspect of the dark 
+--- 
 
- so just so you have the information about me and where all of this is coming from 
+We're going to continue on with "Programming Your Brand Through The Internet"
 
- because there is a certain approach 
+We are going to go over the schooling and academic aspect of this program.
 
- of how to view with problems 
+Just so you have the information about me and where all of this is coming from.
 
-and depending on the education that you get 
+There is a certain approach of how to view "problems".
 
- of the experiences that you have 
+Depending on your education and 
 
-their different ways of approaching but 
+And the experiences that you have.
 
- I'm going to show you my background 
+There are different ways of approaching life. 
 
- just so you have some experience 
+I'm going to show you my background 
 
-and how bad help me and some ways that really help me 
+So you have deeper perspective.
 
-but overall because we are here right now in this very moment 
+What helped me and some ways that can really help you.
 
- everything that happened was exactly the way I'm supposed 
+Overall because we are here right now in this very moment, 
 
- to have 
+Everything that happened was exactly the way it was supposed to happen.
 
-all right I want to give a little bit more emphasis on my mom's story 
+More emphasis on my mom's story:
 
- so she grou with my both of my aunts and my grandma 
+She grew with my two sisters and my grandma.
 
- has four of them three sisters at the mall 
+Three sisters and one mom.
 
-our Grandpa was not a very good provider 
+Our Grandpa was not a very good provider 
 
-so he decided excited to live the life that he lived and he suffered greatly for it 
+So he decided excited to live the life that he lived and he suffered greatly for it 
 
-but because he suffered later on in his life 
+Because he suffered later on in his life 
 
 to have a good life of what he wanted 
 
