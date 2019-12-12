@@ -388,215 +388,267 @@ Everything that happened was exactly the way it was supposed to happen.
  
  ---
  
- 
+Chapter 0: Why 
 
-All right chapter 0 why academics
+Academics 
 
 
-so I graduated from Southern California high school
+Tracie and I grew up in Southern California. 
 
+We graduated from Henry J. Kaiser High School in Fontana, California.
 
-Henry J Kaiser High School 
+We graduated at the top of our classes. 
 
-it was in Fontana 
+I have always been a bright and energetic child.
 
-and Fontana is famous for the steel mill and the speedway 
+I read at a high reading level my whole life.
 
+Our parents pushed us into mastering our academics. 
 
-it was actually a pound city that was made in order to produce steel for the war and others a story. 
+I skipped first grade because my home schooling in my first years of life put me in the advanced tier of second grade when I "should" have been in first grade.
 
+I was held back by public school administrators after finishing second grade. 
 
-Kamizase Aziz I would run out of gas by the time they production plant so they wouldn't be able to bond it 
+I had straight A's but administration sold the idea I was too "small" and would get bullied by the other students. 
 
+I remember having to memorize all multiplication tables past 13 by the time I was in second grade. 
 
+I received a mix of education in Southern California Schools and a Mexican Elementary Government School, 
 
+Mexico schooling was only temporary: my dad injured his back and we lost our house in Compton, California. 
 
-it's an hour East from LA and
 
-from there that steel mill all those families working for the effort needed to have health care
+The local kids would throw rocks at me and discriminate because I had an "American" accent. 
 
-so one of the owners from the Kaiser steel mill Kaiser High School 
+The lunch ladies would not give me the ~$0.20 lunch of bean soup because we were "American" and we could afford to pay more. 
 
-and Kaiser health care 
+All chaos that happened in our life gets dealt with quickly because we take no shit from anyone. 
 
-I graduated with a 3.8 in high school 
 
-I was very smart growing up 
 
-I read out on a high reading level
 
-I was always getting mad 
+I always succeeded in school. 
 
-because I was pushed towards that 
+My parents taught me to drive stick shift when I was 9 years old. 
 
-I remember having to memorize the times tables up to 10 by the time I was like first second grade 
+I was introduced to photoshop and the internet that age as well by my architect cousin Peter.
 
 
-actually skip first grade because I was so smart 
+As a child, I pictured myself typing away at a computer in the tallest skyscraper in the biggest city. 
 
-I got straight A's in second grade 
+That was the idea of success I was working towards.
 
-but I was held back I was too short and 
+2008 happened, everything since then was to find stability. 
 
+The possibility of "just" surviving as an American was the target we were told to reach towards. 
 
-they said that I would get bullied if I moved on 
+I decided I wanted to be a registered nurse when I was 16 because I knew the education would give me the structure to accomplish everything I wanted to accomplish. 
 
-I did very good in a high school because I knew the game 
+I went to Riverside Community College with the goal to become a Licensed Registered Nurse.
 
-the game was just memorization 
 
-it was just read this part of the textbook answer these questions 
+California State University Sacramento is where I got my Bachelors Of Science in Nursing (BSN).
 
-and you're testing to be based on memorization 
 
-that is the lowest form of education 
+I am a Registered Nurse with extensive experience in Primary Care, Triaging, Urgent Care, Substance Abuse, Behavioral Health, and Motivational Interviewing. 
 
-but that's what we were talking and I went to Community College with the goal to become a registered nurse again. 
 
-Very similar it is lots of memorization but you have to apply those memorization along with skills to provide patient care to be a nurse 
+After graduation December 2015, I used all my skills , time, energy, and space to make design of our fur babies:
 
-so everything that I through High School community College California State University Sacramento where I got my. Science in nursing I'm a registered nurse 
+Moo and Mittens. 
 
-everything has taught me where I am when I'm going to be doing in the future because of everything that I've learned
+I took a picture of them straight on, cartoonized their faces in photoshop, split the images down the middle, combined, and that is how the idea of MOOTENS was created. 
 
-I used to be wanting to compartmentalize my life into o I only do this or I'm only there for I do this but
 
-in reality all of my experiences make me who I am 
+When I would express my ideas through digital art, I would share these works to the world through the internet. 
 
-from there it makes up the value that i provide back out to you. 
+I know when I put my full force and energy into creating something, it is always better it is created than not. 
 
-So the reason why I'm bringing this up in this type of media course of programming and brown through the internet
+When I would make accounts or have to place a "logo" I would use the the MOOTENS name and use our same logo. 
 
-is to let you know that you don't necessarily need a
+As time went on, this idea of MOOTENS kept coming back. 
 
-marketing background f
+Now, MOOTENS productions is a full fledged business focused on bringing together people using electronic marketing solutions in advertisement, hypermedia graphic design, and workflow optimization. 
 
-or an art. 
+We use our experiences in 
 
-Programming. 
+Business, 
 
-Literally you can create whatever the f*** you want to create 
+Art, 
 
-if you just put your hundred percent full form and 
+Technology, 
 
-instead of spinning your wheels and
+and Healthcare,
 
-trying to figure everything out and
+In order to improve, grow, achieve, and overcome all challenges that come in life.
 
-try to learn from different people and
 
-do things kind of halfway and experiment
+--- 
 
-I'm going to give you the guidelines that all of the other brands that are successful and companies and government Healthcare everything 
 
-we're going to use the industry-standard launching point to where 
+I know the American Public Education System.
 
+The public school game is mainly memorization. 
 
-we're going to be growing our brand and where
+Shut up, sit down, and if you have anything to say you have to ask permission to speak and get granted the ability to grow.
 
-we're going to be disseminating our ideas and information into the whole world and
+Read this part of the textbook answer these questions.
 
-this structure is through MOOTENS production and 
+You're getting tested based on memorization.
 
-the whole guideline everything is compartmentalize into a box called programming your brain to the Internet 
+University education is very similar to the public K-12 school system. 
 
-so after I went to school and I got my nursing degree my.
+Also lots of memorization, but you have to apply those understood ideas along with skills and communication to provide the best care.
 
-By the nursing I got my first job as a nurse I was a primary care nurse at a local federally qualified Health Center 
 
-which is code word for we accept anyone and everyone
+Memorization is the lowest form of education. 
 
-in all of my skills into being able to provide the best care to everyone who came in through our doors
+I realize now: 
 
-I use my experience of working at Jack In The Box 
 
-and of my schooling and of everything in order to provide the best care
+The best way to go through life is to put our full force and energy into achieving everything we want to achieve. 
 
-and because of that I thrive everywhere  I go
+The better we are able to focus our 
 
-no matter what position I am placed in 
+Thoughts, 
 
-I guarantee that I am able to make the most down call positive impact because of all of my experience 
+Feelings, 
 
-instead of focusing just on being a nurse and having that aspect I use my education in order to achieve everything in 
+and Actions, 
 
-Care Medical Care Health Care to a person that is sick and come in through some door
+the better we are able to work towards living our ideal lives.
 
-no we need to provide this experience and education to everyone in the world 
+All of our experience teaches us who the FUCK we are. 
 
-and the healthcare Optical programming your brand through the internet is more months and
+What we are working towards. 
 
-its thoughts feelings and actions. 
+The future. 
 
-And there's a lot of mental health advice that is disseminated through this program 
+Everything we have learned makes us who we are.
 
-the basic idea of the Nursing degree and the healthcare screen back
+I used to want to compartmentalize my life into limitations. 
 
-to be committed
+"I only do this, or I'm only that".
 
-to do what the f*** you want to do
+In reality, all of our experiences make us who we are. 
 
-if you are feeling anxious and you're unsure healing. 
+All of our perspective makes up the value that we provide back out to the world. 
 
-Not Normal feeling to have okay 
+The reason why I'm bringing this up in this Hypermedia Course of Programming Your Brand Through The Internet:
 
-you need to stop
+You don't need formal education.
 
-right
+You do not "NEED" licenses or certifications. 
 
-talk 
+If we learn, change, grow, and use technology to the most of our advantage,  
 
-meditate
+Literally we can create whatever the fuck we want to create.
 
-draw
+If we just put our hundred percent full force, Time, Energy, and Space we will accomplish everything.
+
+Instead of: 
+
+Being Average. 
+
+Spinning our wheels.
+
+Being Tired. 
+
+Stop. 
+
+We learn best from other people's stories. 
+
+Learn from different people.
+
+Do everything with massive action and experiment always.
+
+I'm going to give you the guidelines that all of the other successful brands, companies, and agencies use to succeed.
+
+We're using those the industry-standard guidelines as a launching point to start off our journey.
+
+
+We're going to be growing our brand and where
+
+We're going to be disseminating our ideas and information into the whole world and
+
+This structure is through MOOTENS production and 
+
+the whole guideline everything is compartmentalize into this program.
+
+We use all of our skills to be able to provide the best solutions to everyone.
+
+I thrive everywhere I go.
+
+No matter what position I am placed in,
+
+I guarantee that I am able to make the most positive impact because of all of my experience 
+
+--- 
+
+Thoughts Feelings and Actions. 
+
+There's a lot of mental health advice that is disseminated throughout this program.
+
+The basic idea of living our best lives:
+
+To be committed
+
+To do what the FUCK we want to do.
+
+If we are feeling anxious and you're unsure healing. 
+
+It is not normal feeling to have. 
+
+
+We need DO MORE.
+
+Write.
+
+Talk.
+
+Meditate
+
+Draw
 
 you need to work out.
 
 He can't just be how deep down
 
-you to push it down for sure but it's not the best way to live because you're not doing what you want to be doing 
+We can push that negativity down for sure but it's not the best way to live. 
 
-do you really want to be feeling that.
+Because you're not doing what you want to be doing.
 
-You don't talk that the reason why you get that feeling is that discomfort
+Do you really want to be feeling that? 
 
-is you knowing that you're not doing supposed to be doing.
+NO.
 
-What you doing so lean into that discomfort
+The only reason we get that bad feeling 
 
-grill the most achieve everything you want
+Is knowing we are not doing what we're supposed to be doing.
 
-to achieve through Massive Action 
+We know what the fuck we need to do. 
 
-every limitation that there is in life
 
-with Ruby time energy space 
+Lean into that discomfort
 
-everything can be over, massive Action and 
+Grow the most, and achieve everything we want to acheive.
 
-the amount of Massive Action that you put in
+Achieve through Massive Action .
 
-literally Corley how much you get back and
+Every limitation that there is in life is our own box we place ourselves in. 
 
-you decide how much action you're going to put
+The answer is always massive Action. 
 
-I'm telling you it should be. Do what the f*** you want to do
+The amount of Massive Action that we intake and output through this world,
 
-all right
+Is literally correlated to how much value we get back.
 
-next thing when you go over how I came to the realization
+We decide how much action we put out.
 
-why I have this mindset and where it comes from
+I'm telling you how it should be. 
 
-next thing is going to be my set 
+Do what the FUCK we want to do. 
 
-in the terms of the people like the
-
-retirement and th
-
-existential crisis
-
-setting up the structure up before hypermedia course
 
 ---
 
