@@ -149,6 +149,67 @@ I am not surprised they are together.
 They worked their asses off and they showed us what hard work really is.
  
  
+More emphasis on my mom's story:
+
+She grew with my two sisters and my grandma.
+
+Three sisters and one mom.
+
+Our Grandpa was not a very good provider 
+
+So he decided excited to live the life that he lived and he suffered greatly for it 
+
+Because he suffered later on in his life 
+
+to have a good life of what he wanted 
+
+to live without our family without his daughters without his wife 
+
+then ultimately my mom's side of the family suffered and 
+
+ my grandpa ultimately sufffered at his end of life 
+
+so because my grandpa was not a part of our family 
+
+my grandma and my mom and aunts have to provide for themselves 
+
+my grandma has this store rest in peace 
+
+she needed to make money 
+
+so she would make Jello for the neighborhood 
+
+shooting make big batches of Jell-O which she wouldn't sell to 
+
+ some local people who would then take that Jello break it up 
+
+and then sell it and self profit 
+
+and then my mom aunts and what all food do seamstress seen in. 
+
+Type cloth type of work as well as having a different jobs 
+
+they also built their house from the ground up all by themselves 
+
+that entrepreneurial ship type of drive
+
+ for sure is a big part of what makes me me 
+
+ my mom and her experience reality \ 
+
+combined with my dad's hard work ethic 
+
+have made me who I am so 
+
+I am nothing but proud of where I come from 
+
+and the Legacy. I'm Leaving On To The Future Generations so 
+
+
+thank you
+ 
+
+
  When I think of the impact that my parents had on me and the main things are:
  
  Working your ass off.
@@ -210,13 +271,13 @@ They worked their asses off and they showed us what hard work really is.
  
  That means we are not doing what we want to be doing.
  
- So if you are doing what you want to be doing then you're going to have lots of energy, time, and have the space to actually do it.
+ So if you are doing what you want to be doing then you're going to have lots of time, energy, and have the space to actually do it.
  
  The other key to this is you have to be obsessed with what you want to do.
 
  AND DO IT.
  
- If you are obsessed and if you are committed with what you want to achieve and you do everything that you want to do at 100% then...
+ If you are obsessed and if you are committed with what you want to achieve and you do everything that you want to do at 100%
  
  What's going to be the result?
  
@@ -224,7 +285,7 @@ They worked their asses off and they showed us what hard work really is.
  
  You have to keep working on it and you only stop when you die. 
 
-Your legacy lives on for as long as you want it to continue after you are physically gone from this dimension.
+Your legacy lives on for as long as you want it to continue after you are physically gone from this reality.
  
  Retirement is a myth!
  
@@ -323,65 +384,6 @@ Overall because we are here right now in this very moment,
 
 Everything that happened was exactly the way it was supposed to happen.
 
-More emphasis on my mom's story:
-
-She grew with my two sisters and my grandma.
-
-Three sisters and one mom.
-
-Our Grandpa was not a very good provider 
-
-So he decided excited to live the life that he lived and he suffered greatly for it 
-
-Because he suffered later on in his life 
-
-to have a good life of what he wanted 
-
-to live without our family without his daughters without his wife 
-
-then ultimately my mom's side of the family suffered and 
-
- my grandpa ultimately sufffered at his end of life 
-
-so because my grandpa was not a part of our family 
-
-my grandma and my mom and aunts have to provide for themselves 
-
-my grandma has this store rest in peace 
-
-she needed to make money 
-
-so she would make Jello for the neighborhood 
-
-shooting make big batches of Jell-O which she wouldn't sell to 
-
- some local people who would then take that Jello break it up 
-
-and then sell it and self profit 
-
-and then my mom aunts and what all food do seamstress seen in. 
-
-Type cloth type of work as well as having a different jobs 
-
-they also built their house from the ground up all by themselves 
-
-that entrepreneurial ship type of drive
-
- for sure is a big part of what makes me me 
-
- my mom and her experience reality \ 
-
-combined with my dad's hard work ethic 
-
-have made me who I am so 
-
-I am nothing but proud of where I come from 
-
-and the Legacy. I'm Leaving On To The Future Generations so 
-
-
-thank you
- 
  
  
  ---
