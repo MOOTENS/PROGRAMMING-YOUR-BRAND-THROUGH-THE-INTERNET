@@ -387,7 +387,6 @@ Everything that happened was exactly the way it was supposed to happen.
  
  
  ---
- 
 Chapter 0: Why 
 
 Academics 
@@ -417,10 +416,11 @@ I received a mix of education in Southern California Schools and a Mexican Eleme
 
 Mexico schooling was only temporary: my dad injured his back and we lost our house in Compton, California. 
 
+School in Mexico was rough. 
 
 The local kids would throw rocks at me and discriminate because I had an "American" accent. 
 
-The lunch ladies would not give me the ~$0.20 lunch of bean soup because we were "American" and we could afford to pay more. 
+The lunch ladies would not give me the $0.20 lunch of bean soup because we were "American" and we could afford to pay more. 
 
 All chaos that happened in our life gets dealt with quickly because we take no shit from anyone. 
 
@@ -450,7 +450,7 @@ I went to Riverside Community College with the goal to become a Licensed Registe
 California State University Sacramento is where I got my Bachelors Of Science in Nursing (BSN).
 
 
-I am a Registered Nurse with extensive experience in Primary Care, Triaging, Urgent Care, Substance Abuse, Behavioral Health, and Motivational Interviewing. 
+I am a Registered Nurse with extensive experience in Primary Care, Triaging, Urgent Care, Substance Abuse, Behavioral Health, Motivational Interviewing, and public health. 
 
 
 After graduation December 2015, I used all my skills , time, energy, and space to make design of our fur babies:
@@ -648,7 +648,6 @@ We decide how much action we put out.
 I'm telling you how it should be. 
 
 Do what the FUCK we want to do. 
-
 
 ---
 
