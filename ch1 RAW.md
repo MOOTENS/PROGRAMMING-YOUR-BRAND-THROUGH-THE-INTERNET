@@ -1,4 +1,228 @@
-All right chapter 1 programming your brand through the internet branding this subsection is named okay so what is the name of your brand the name is very important now if it means something to you and whatever the name is that create as long as you commit to that 100%. Doesn't matter what the f*** is it can be numbered! But generally you want to think of big big big brand as the brand that you agreed so not only do you think of any terms of oh your knitting business your Consultation business your little plant business think of it in terms of big Mastiffs legal government 43 related to that so when you have your brand name you're going to happen to 70. Out into the world so you have to become into it you have to be 100% behind it and the name is very important because again. Structure of them here now let me give you a few examples before we were examples of lutein canon Canon is a camera brand and indignity do lots of other things too but think of that Meme I keep to praying donald Trump he's a brand his person he's a friend Tracy. The person me Jorge Perez I have my own brand you are your own brand to but it's easier to objectify that brand idea into something that you can please and say okay this is the brand it's called X it's called PayPal it's called Google it called production so again the name that you decide for your brand new have to be committed 100% behind it you have to be committed so much that the specific of the spelling the casing has to be specific as well for example Google has their own when you go on google.com be a big G and then small o o g l e Cannon I'm looking at it right now there's a big c and there's a mof muchas production putin is always in capitals if it can be helped if it can be capitalized should be capital okay now sometimes for like usernames or emails it'll automatically reverted back down to lower case but that's fine because that's a limitation but if I'm going to be creating a brand if I'm going to be slapping that brown. It's going to be all capital how it is that's just how the idea of the brand name is it's always even in government documents for the LLC for the bank statement everything is all capitals and Productions is all lower case it's all Productions it is all lower case as soon as LLC is the Big L the Big Al and The Big C there's no. Lowercase it's gluten in all capital Productions in lowercase and LLC without. And the healthiest chocolate think of your brand right. If you have not yet please you need to write it down and you need to multiply that I need to keep writing it down you keep typing it out I need to keep saying it and you need to 100% with your brand name you know what it is so neat. Now the second thing is the description so the description of your brand like what what is your what is your Abyss is needed in every social media site you have your bio you have your disk and even when you created as a full-fledged business. That is connected with the government write your documentation that you provide the description what is it well improvement through hyper me because that is what it is it's the production that is created through and its Improvement through hyper literally in the sand you can see the Improvement do the hypermedia media is just a combination audio images video tax that is embedded in the internet technology through the web and disseminated hypermedia so but Improvement through hyper description of the government doesn't recognize that it's like okay what do you do we do in proving to hypermedia they're like what what it is what is that so when you think of the future proofing or whatever your brand on is going to be the official like LLC or Corporation or make it recognized by the government you should be working for that so actually going to have to do it but what do you want people to think of when you think of the brat but if you look up and see a is the northern classification of what your brand really is when you're in the hypermedia course you can just click and there be different examples but those examples. NCAA is those codes on what that is is it structured information that the government has laid out and said okay this is nice as businesses so would you feel if you fall into one of these categories you are a business and it's so broad that whatever you he's going to fit into something whether it be food served a manufacturing advertising marketing whatever it maybe NCAA is code we have to put for is business-to-business electronic Market according to the article nobody to the government in terms of what is Newton's production what does it do what's the description well production is in business-to-business and that means there are electronic systems like the internet that is used to connect businesses with clients and customers and provide different solution based around getting more clients and solving these issues businesses businesses through electronic means so. Falls the new description of who Productions LLC which is not only improve into hypermedia that's because now it is business-to-business medtronic Marketing Solutions so when we think of where we're at with our branding and our name and our description it's mutans Productions LLC the description is business-to-business electronic Marketing Solutions and there's also a subsection which is Improvement through hyper which is all of the unique values and perspectives that make so after that in terms of branding you need styling The Styling is the color the way your brand logo looks and the colors that your brand is usually people will have a rectangular logo and a square logo usually the square logo is used for like a simple Avatar image or logo that says with this company I'm sure you know lots of different examples of logos in square form and also your name is a logo in and of itself so whatever your name is. Bobo the morning mix it and now chin Creator. Fart i've been looking but within the letters is different images and different stickers. The words and that's it... The brand. The uniqueness of the name is it is its own brand new it's you should be able to put your brand name on a sticker making you need a favor leave this right here so if you're not able to do that then well you are able to do that but so go ahead and go to Google fonts or Sigma. I need just look at all the fonts that are available through the web where did you go to a website and the van is available to Google van from everyone will be able to see it so you can use that as a structure of building your brand and you can go to figma. A free account and be able to use all of those tools that are industry standard start building your brand literally type out your name and you can just take a picture of it and boom you have your logo right there your name and the color about program near Brampton the internet and making the brand assistant in terms of The Styling and the colors and the brown you have to think of the colors as being consistent and now the mutants read right here you can see this red. Color Aid 0000 now a hex color is the computers code a saint specific shade of color is that color that you're requesting and a specific read that I like that is part of the production is 80000 now these different colors that I also associate with with his production the Branding in the silent consistent and that is deep pink witches hex color ff14 9-3 and deep sky blue 00 fFF and I have memorized those a hex code to the point where whenever I create something and I want to see how the logo looks or look at something else and instead of black or white or red I had the Deep pain or the Deep sky blue or something else I keep it consistent through his filing so people can recognize the brand because they recognize the colors they recognizes so I want you to have your colors of your brand so that you remember the hair colors so just search hex color on Google and you'll be able to figure out what code exactly you want your color styling to be for your brand and just continue that for 4 figma. The great free resource to start building Brown again just think of a good name calling do the colors do the van and create your logo now the final thing about that square aspect do you need the whole reason that name exists is because we have gluten and. Make the brand unique because it makes us who we are and we love our companion so much. When you think of the name feeling like I couldn't come from so if your brand as yourself and your face is your logo all right if you want to have like a triangle or like some type of design that incorporates what you do with a landscaping cooking or whatever that was chapter 1 branding and next thing we're in Andover is what needs of your audience which I hear the tip your onion should be everyone in the world and your approach in terms of campaign all right so we're going to continue with chapter 1 branding
+Chapter 1 
+
+Programming your brand through the internet
+
+Branding
+
+
+This subsection is 
+
+NAME
+
+
+What is the name of your brand?
+
+The name is very important.
+
+If it means something to you and whatever the name is that you create, as long as you commit to that 100%.
+
+Full force.
+
+Doesn't matter what the f*** it is. 
+
+It can be numbers, exlamation points, whatever. 
+
+But generally, you want to think of 
+
+BIG
+
+BIG
+
+BIG 
+
+brand as the brand that you're creating. 
+
+Not only do you think of the brand in terms of your knitting business, your consultation business, your little plant business.
+
+Whatever business/ brand   you have, think of it in terms of big, MASSIVE things.
+
+Legal.
+
+Government.
+
+Everything related to that.
+
+When you have your brand name, you're going to have to disseminate that brand name out into the world.
+
+You have to be committed to it.
+
+You have to be 100% behind it.
+
+The name is very important because that's going to be the amin structure of that idea.
+
+Let me give you a few examples before we move onto the examples of MOOTENS productions. 
+
+Canon.
+
+Canon is a camera brand.
+
+They do lots of other things too, but think of that name.
+
+That's a brand name.
+
+Nike. 
+
+Supreme.
+
+Donald trump.
+
+He's a brand. 
+
+His person, he's a brand. 
+
+Tracie Dang.
+
+She's a brand, she's a person. 
+
+Me, George Perez, I am own brand.
+
+You are your own brand, too.
+
+It's easier to objectify that brand idea into something that you can place and say "Okay, this is the brand."
+
+It's called X. 
+
+It's called PayPal.
+
+It's called Google.
+
+It's called MOOTENS productions.
+
+The name that you decide for your brand, you have to be committed 100% behind it.
+
+You have to be committed so much that the specific of the spelling, the casing has to be specific as well.
+
+For example, Google has their own specifics. 
+
+When you go on google.com, you can see the big G and then small o o g l e.
+
+Cannon, I'm looking at it right now.
+
+There's a big C and there's a n o n.
+
+There's not two n's or a small C.
+
+It's all consistent. 
+
+Mootens Productions.
+
+MOOTENS is always in capitals.
+
+If it can be capitalized, it SHOULD be capital.
+
+Sometimes, for usernames or emails it'll automatically revert it back down to lower case.
+
+But that's fine because that's that limitation.
+
+If I'm going to be creating a brand, if I'm going to be slapping that brand onto something, it's going to be all capital.
+
+That's just how it is.
+
+That's just how the idea of the brand name is- it's always in capitals. 
+
+Even in government documents.
+
+For the LLC.
+
+For the bank statements.
+
+Everything.
+
+It's all capitals- MOOTENS. 
+
+And productions is all in lower case. 
+
+There's no capital P in productions. 
+
+It is all lower case.
+
+As soon as it got the LLC attached to it, it's the big L the big L and the big C.
+
+There's no lowercase.
+
+It's MOOTENS in all capital.
+
+Productions in all lowercase.
+
+And LLC without periods, and in capital.  
+
+Think of your brand.
+
+Write that s*** down if you have not yet.
+
+Please.
+
+You need to write it down and you need to multiply that.
+
+You need to keep writing it down.
+
+You need to keep typing it out.
+
+You need to keep saying it.
+
+You need to be consistent and 100% with your brand name.
+
+You know what it is, so make that out into the world. 
+
+The second thing is the DESCRIPTION.
+
+The description of your brand, what is your brand?
+
+What is your mission statement? 
+
+What is your despcription? 
+
+This is needed in every social media site.
+
+You have your bio, you have your description.
+
+Even when you create it as a full-fledged business that is connected with the government.
+
+Your documentation that you provide, the description- what is it?
+
+MOOTENS productions started with "improvement through hypermedia" because that is what it is.
+
+It's the productions that is created through MOOTENSand its improvement through hypermedia.
+
+Literally in that sense, you can see the improvement through the hypermedia.
+
+The hypermedia is just the combination of 
+
+Audio 
+
+Images 
+
+Video 
+
+Text
+
+that is embedded in the internet technology through the web, and disseminated.
+
+That's hypermedia. 
+
+But "improvement through hypermedia" as a description- the government doesn't recognize that.
+
+It's like okay, what do you do?
+
+In MOOTENS productions, we do improvement through hypermedia.
+
+Well, what is that?
+
+When you think of the future-proofing of whatever your brand is going to be, maybe you're thinking "I'm never going to do the official LLC or make it into a corporation or make it recognized by the government."
+
+You SHOULD be working towards because again, those MASSIVE goals.
+
+You're going to be getting so much income that it's going to be illegal to not do it. 
+
+Eventually you'll have to do it, so still think of it.
+
+What value are you providing? 
+
+What do you want people to think of when they think of the brand? 
+
+When people think of MOOTENS productions, they think "improvement through hypermedia."
+
+Going back to the government aspect of the going to have to do it but what do you want people to think of when you think of the brat but if you look up and see a is the northern classification of what your brand really is when you're in the hypermedia course you can just click and there be different examples but those examples. NCAA is those codes on what that is is it structured information that the government has laid out and said okay this is nice as businesses so would you feel if you fall into one of these categories you are a business and it's so broad that whatever you he's going to fit into something whether it be food served a manufacturing advertising marketing whatever it maybe NCAA is code we have to put for is business-to-business electronic Market according to the article nobody to the government in terms of what is Newton's production what does it do what's the description well production is in business-to-business and that means there are electronic systems like the internet that is used to connect businesses with clients and customers and provide different solution based around getting more clients and solving these issues businesses businesses through electronic means so. Falls the new description of who Productions LLC which is not only improve into hypermedia that's because now it is business-to-business medtronic Marketing Solutions so when we think of where we're at with our branding and our name and our description it's mutans Productions LLC the description is business-to-business electronic Marketing Solutions and there's also a subsection which is Improvement through hyper which is all of the unique values and perspectives that make so after that in terms of branding you need styling The Styling is the color the way your brand logo looks and the colors that your brand is usually people will have a rectangular logo and a square logo usually the square logo is used for like a simple Avatar image or logo that says with this company I'm sure you know lots of different examples of logos in square form and also your name is a logo in and of itself so whatever your name is. Bobo the morning mix it and now chin Creator. Fart i've been looking but within the letters is different images and different stickers. The words and that's it... The brand. The uniqueness of the name is it is its own brand new it's you should be able to put your brand name on a sticker making you need a favor leave this right here so if you're not able to do that then well you are able to do that but so go ahead and go to Google fonts or Sigma. I need just look at all the fonts that are available through the web where did you go to a website and the van is available to Google van from everyone will be able to see it so you can use that as a structure of building your brand and you can go to figma. A free account and be able to use all of those tools that are industry standard start building your brand literally type out your name and you can just take a picture of it and boom you have your logo right there your name and the color about program near Brampton the internet and making the brand assistant in terms of The Styling and the colors and the brown you have to think of the colors as being consistent and now the mutants read right here you can see this red. Color Aid 0000 now a hex color is the computers code a saint specific shade of color is that color that you're requesting and a specific read that I like that is part of the production is 80000 now these different colors that I also associate with with his production the Branding in the silent consistent and that is deep pink witches hex color ff14 9-3 and deep sky blue 00 fFF and I have memorized those a hex code to the point where whenever I create something and I want to see how the logo looks or look at something else and instead of black or white or red I had the Deep pain or the Deep sky blue or something else I keep it consistent through his filing so people can recognize the brand because they recognize the colors they recognizes so I want you to have your colors of your brand so that you remember the hair colors so just search hex color on Google and you'll be able to figure out what code exactly you want your color styling to be for your brand and just continue that for 4 figma. The great free resource to start building Brown again just think of a good name calling do the colors do the van and create your logo now the final thing about that square aspect do you need the whole reason that name exists is because we have gluten and. Make the brand unique because it makes us who we are and we love our companion so much. When you think of the name feeling like I couldn't come from so if your brand as yourself and your face is your logo all right if you want to have like a triangle or like some type of design that incorporates what you do with a landscaping cooking or whatever that was chapter 1 branding and next thing we're in Andover is what needs of your audience which I hear the tip your onion should be everyone in the world and your approach in terms of campaign all right so we're going to continue with chapter 1 branding
 
 
 ---
