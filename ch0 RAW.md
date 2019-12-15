@@ -72,7 +72,7 @@ as we grow up in life we realize that (most) everything that Society teaches us
 
 In terms of 
 
-education,
+Education,
 
 What is success 
 
